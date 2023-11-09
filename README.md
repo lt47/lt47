@@ -3,8 +3,8 @@
 <br>
 
 - I enjoy problem solving
-- Playing chess in my spare time (My elo is embarrassing. Fight me - v4victorious on chess.com)
+- Playing chess is a hobby of mine and my elo is embarrassing given how often I play. Fight me - v4victorious on chess.com
 - Lakers & Arsenal fan
-- [Website](https://www.fort-seven.com)
+- [Personal website](https://www.fort-seven.com)
 
 <br><br>
